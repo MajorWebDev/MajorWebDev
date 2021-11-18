@@ -1,0 +1,3 @@
+- 👋 Hi, I'm @MajorWebDev
+- 👀 I’m interested in Website Developer
+- 📫 How to reach me @majorwebdev21@gmail.com
